@@ -1,2 +1,2 @@
-# My Labs
+# Study
 
